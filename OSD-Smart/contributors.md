@@ -77,6 +77,7 @@
 - Taylor
 - Teresa Hubscher-Younger
 - Trang
+- Trang Dang
 - Veena
 - Winny Hu 
 - Xiaoran
